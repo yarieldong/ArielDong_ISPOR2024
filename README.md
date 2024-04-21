@@ -4,4 +4,5 @@ Please click [here](../main/ISPOR_2024_Poster_FINAL.pdf) to access the digital c
 
 Please click [here](../main/Full_Result_Report.pdf) for the full result report.
 
-Here is my [LinkedIn page](https://www.linkedin.com/in/ariel-dong/)!
+
+If you have any questions regarding this poster, please feel free to contact me at wed001@health.ucsd.edu or through [LinkedIn](https://www.linkedin.com/in/ariel-dong/).
